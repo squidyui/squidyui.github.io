@@ -6,4 +6,6 @@ p.s. sorry for the shitty web design. I tried my best.
 
 ### Social Media Links
 
-•[Instagram](
+•[Instagram](https://www.instagram.com/squid._.yui/)
+
+Sorry, we are closed due to maintance!
